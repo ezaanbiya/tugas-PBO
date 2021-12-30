@@ -5,3 +5,4 @@ Kelompok 2 - Kelas 5A :
 3. Restu shafira     (1930511009)
 4. Eza Anbiya Tisna  (1930511019)
 5. Zaky Rahma Saadi  (1930511037)
+6. Ario Raka Avila   (1830511094)
